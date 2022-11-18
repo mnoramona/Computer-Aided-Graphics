@@ -1,3 +1,0 @@
-LENOVO
-DESKTOP-Q66QKST 
-Friday, November 18, 2022  11:58:13 PM
